@@ -1,1 +1,1 @@
-parter 2 Khlood ! partner 1: mohamedsayed77 !
+parter 2 Khlood mostafa! partner 1: mohamedsayed77 !
